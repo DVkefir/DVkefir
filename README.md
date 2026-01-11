@@ -1,6 +1,6 @@
 - 👋 Hi, I’m @DVkefir
 - 👀 I’m interested in modeling for blender and scripting
-- 📫 How to reach me: Just write to me on discord "1_kefir_1"
+- 📫 How to reach me: Just write to me on discord ".kef1r.228"
 - 😄 Pronouns: fermented milk product
 - ⚡ Fun fact: I love ANIMATED series like "Murder Drones"
 
